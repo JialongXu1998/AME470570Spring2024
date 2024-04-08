@@ -1,1 +1,3 @@
 # AME470570Spring2024
+Jialong Xu 
+1218828624
